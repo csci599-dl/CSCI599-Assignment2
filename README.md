@@ -79,4 +79,4 @@ more than welcome to assist.
 
 Again, NO INDIVIDUAL EMAILS WILL BE RESPONDED.
 
-PLEASE USE **PIAZZA** TO POST QUESTIONS (under folder assignment1).
+PLEASE USE **PIAZZA** TO POST QUESTIONS (under folder assignment2).
